@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @qianayeung
 - 👀 I’m interested in SEO and data analytics
-- 🌱 I’m currently learning Google Analytics 4 Properties
+- 🌱 I’m currently collaborating with The DAO Network as an Outreach Manager.
 - 💞️ I’m looking to collaborate on business analysis & digital marketing campaigns
 - 📫 How to reach me -> qianayang97@gmail.com
 
